@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-Fabio Santo built the Livex Live Wallpaper app as a Free app. This SERVICE is provided by Fabio Santo at no cost and is intended for use as is.
+Fabio Santo built the Wonderwall - Live wallpapers apps as a Free / Paid apps. This SERVICE is provided by Fabio Santo at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
